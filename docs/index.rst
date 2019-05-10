@@ -2,8 +2,7 @@
    sphinx-quickstart on Tue Aug 26 14:19:49 2014.
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
-
-Free Download Printer Driver ‒ 
+ 
 ==================
 
 `Free Download Printer Driver <https://www.canonutility.com/canon-mx490-driver-download.html>`_ - The Avast Antivirus is up 'til now the best free threatening to contamination programming accessible right at this point. The SmartScan elective finishes a touch of everything, giving you a report after the breadth educating you concerning perils relating to each one of the above characterizations. Moderately all aspects of the organization can be exclusively fitted to your own specific slants, making Avast unfathomable for tinkerers and the all the more in reality objected. Clearly, there are a great deal of menu things that incite organizations that you have to pay for, yet this is illuminated before you click, so we never felt like we were persevering through an endeavor to offer something. 
